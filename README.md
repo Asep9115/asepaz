@@ -1,2 +1,0 @@
-# asepaz
-website pertamaku
